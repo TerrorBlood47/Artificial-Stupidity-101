@@ -1,0 +1,1 @@
+# Artificial-Stupidity-101
